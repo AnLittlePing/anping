@@ -1,6 +1,6 @@
 My children:
 
-I have found your monther in thousands of people.
+I have found your mother in thousands of people.
 
 She is kind and clever.
 
